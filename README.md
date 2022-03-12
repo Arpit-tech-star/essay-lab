@@ -1,2 +1,0 @@
-# essay-lab
-FOR EDUCATIONAL PURPOSE
